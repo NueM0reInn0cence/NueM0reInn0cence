@@ -1,6 +1,6 @@
 ## You must be Nue here
 
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/32b605d8-95c1-427b-a9d0-071d016a278f" /> . Greetings, Hi! The name is Kuro or shinarami if there's another Kuro, so that it won't be confused.
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/32b605d8-95c1-427b-a9d0-071d016a278f" /> . Greetings, Hi! The name is Kuro or kiso if there's another Kuro, so that it won't be confused.
 
 
 
@@ -10,9 +10,18 @@
   
 
 
-I'm ok with whisper, when I've offtab so I can read them !! [Oh, and make sure, prepare yourself for a jumpscare.. down there.. I guess. ] Often online ponytown but online alot in discord 
+I'm ok with whisper, when I've offtab so I can read them !! I forgot and Often online ponytown but online alot in Discord, awkward to interact buuut I won't bite!! promises! when first meet.
 
-Makoto kin, Nue kin, Koishi kin.
+ Fandoms
+---------
+Kancolle
+Touhou/2hu
+Kemono  Friends
+Slendytubbie
+Blocktale
+
+
+Makoto kin, Nue kin, Koishi kin. Kiso kin
 
 ![0ab942d5aa7765b913754dc3990bb3a3](https://github.com/user-attachments/assets/ebd80f95-b894-4c38-a84b-4359a759ac69)
 
