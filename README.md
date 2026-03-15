@@ -1,6 +1,6 @@
 ## You must be Nue here
 
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/32b605d8-95c1-427b-a9d0-071d016a278f" /> . Greetings, Hi! The name is Kuro or kiso if there's another Kuro, so that it won't be confused.
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/32b605d8-95c1-427b-a9d0-071d016a278f" /> . Greetings, Hi! The name is Kuro or Kiso if there's another Kuro, so that it won't be confused.
 
 
 
@@ -10,7 +10,7 @@
   
 
 
-I'm ok with whisper, when I've offtab so I can read them !! I forgot and Often online ponytown but online alot in Discord, awkward to interact buuut I won't bite!! promises! when first meet.
+I'm ok with whisper, when I've offtab so I can read them !! I forgot and often online ponytown but online a lot in Discord, awkward to interact buuut I won't bite!! promises! when first meet. I also daisuki hololive
 
  Fandoms
 ---------
